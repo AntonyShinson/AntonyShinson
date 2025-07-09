@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning BTech in SCMS School of Engineering and Technology
 - 📫 How to reach me       
              email: antonyshinson007@gmail.com          
-             LinkedIn: https://www.linkedin.com/in/antony-shinson-8647a12a1
+             LinkedIn: [https://www.linkedin.com/in/antony-shinson-8647a12a1](https://www.linkedin.com/in/antony-shinson/)
